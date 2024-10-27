@@ -28,7 +28,7 @@
   - _Latex_: this tool gives you the chance to create documents and essays with a very formal look, which gives you the chance to look better than others
  
 # Currently...
-- As I said before, I'm studiyng. However, I'm trying to find some scholarship opportunities. Consequently, I will have some work experience and it will definitely boost my opoortunites in the future
+- As I said before, I'm studiyng. However, I'm trying to find some scholarship opportunities. Consequently, I will have some work experience and it will definitely boost my opportunites in the future
 - However, I will try to do some projects here on my own, obviously, shared for everyone
 - If you want to reach me, please contact on @ikerz123 on _Instagram_ or ikerbenitopascual@gmail.com through _Gmail_. I will be pleased to answer!
   
